@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CryingSadBaby
+- 👀 I like to poop and eat
+- 🌱 I don't know any coding language
+- 💞️ I'm looking for my brithday cake
+- 📫 How about donate me some money
